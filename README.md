@@ -1,2 +1,2 @@
-cz nn xz
-x xz
+ncsa na 
+'csamsa cmsa
